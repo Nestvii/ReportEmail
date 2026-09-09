@@ -1,0 +1,1 @@
+[!] This script is created for educational purposes and legitimate reporting automation. Users are responsible for any use of the script and must comply with applicable laws and terms of service. Using the script for spam, illegal content, fraud, or activities that harm others is prohibited. Please use technology wisely and respresponsiblybly
